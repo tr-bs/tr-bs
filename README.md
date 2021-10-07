@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tr-bs
-- 👀 I’m interested in too many things that can be explored within my lifetime.
+- 👀 I’m interested in too many things that cannot be explored within my lifetime.
 - 🌱 I’m currently learning a crash course into data analytics.
 - 💞️ I’m looking to collaborate on future projects.
 - 📫 Message me on LinkedIn at https://www.linkedin.com/in/toniroseb/
